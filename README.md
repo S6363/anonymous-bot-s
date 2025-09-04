@@ -1,3 +1,0 @@
-# anonymous-bot-s
-
-ty
